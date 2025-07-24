@@ -6,6 +6,6 @@ c+h ALWAYSS come cuddle i dont bite drools
 
 w2i most of the time pretty pls
 
-my dni is pretty simple, dont be a FULLY grown adult befriending children in the safe servers 
+ my dni is simple, dont be a weirdoooo
  
 feel free to send me a friend req! I'll likely always accept
