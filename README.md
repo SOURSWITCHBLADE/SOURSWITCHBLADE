@@ -6,6 +6,6 @@ c+h ALWAYSS come cuddle i dont bite drools
 
 w2i most of the time pretty pls
 
- my dni is simple, dont be a weirdoooo
+ ive got no dni.. i block freely 
  
 feel free to send me a friend req! I'll likely always accept
