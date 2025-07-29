@@ -1,5 +1,5 @@
 
- ![Github views](https://komarev.com/ghpvc/?username=SOURSWITCHBLADE&color=000000)
+ ![Github views](https://komarev.com/ghpvc/?username=SOURSWITCHBLADE&color=b16ec2&style=plastic)
  
 
  <p align="center">
@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  Call me cake! xP
+  Call me cake!
 </p>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=65ulglgc8uizctvjv2mgrvi6c&cover_image=false&theme=novatorem&show_offline=false&background_color=000000&interchange=false&bar_color=6b6b6b&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
