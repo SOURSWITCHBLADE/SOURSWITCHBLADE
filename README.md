@@ -1,5 +1,5 @@
 <p align="center"> 
-<img src="https://komarev.com/ghpvc/?username=SOURSWITCHBLADE&color=b16ec2&style=plastic" />
+<img src="https://komarev.com/ghpvc/?username=SOURSWITCHBLADE&color=82584d&style=plastic" />
 </p>
  
 
@@ -8,7 +8,7 @@
 </p>
 
 <p align="center">
-  Call me cake!
+  this is in progress check out my rentry ok?
 </p>
 
 <p align="center"> 
