@@ -4,11 +4,11 @@
  
 
  <p align="center">
-    <img width="200" src="https://i.postimg.cc/WpQM20K5/image-removebg-preview-13.png">
+    <img width="200" src="https://i.postimg.cc/Xqpk1KWc/9c8f369bfd214e7c9a0f4f2cfc4677ba-removebg-preview.png">
 </p>
 
 <p align="center">
-  this is in progress check out my rentry ok?
+  Hallo :3 IM cake ill uhh fix this later hi
 </p>
 
 <p align="center"> 
@@ -16,6 +16,6 @@
 </p>
 
 <p align="center"> 
-<img width="150" src="https://camo.githubusercontent.com/df29b8c00b32acca0d256452c7771e224ef2c3d32ad972bdf0927c2d36880be7/68747470733a2f2f66696c65732e636174626f782e6d6f652f6d39396832662e676966"
+<img width="150" src="https://64.media.tumblr.com/e36c5db43d3273062084207ed06da198/f1f26cc6edd7d39f-56/s100x200/f2a3a06cff8d403825c375cb25550178c99a7a5d.gifv"
  </P>
 
