@@ -16,11 +16,11 @@ $${\color{#EB0000}tһᥱㅤһᥙr𝗍ㅤіᥒsіძᥱㅤіsㅤ𝖿ᥲძіᥒg,
 
 
 <p align="center"> <p align="center"> <p align="center"> 
-<img width="150" src="https://64.media.tumblr.com/e0ef9add9ee923d2e68c847aabed17ec/593fcf905b8c6c14-3b/s100x200/fcb2f574cfc198885513115a015500e564637e17.gifv"
+<img width="150" src="https://file.garden/aN6QaGdkhgyDAzS7/kmfdmstamp.gifv"
  </P>
-<img width="150" src="https://64.media.tumblr.com/ab6526e146c0ba7ee185caa39c4ea2f2/593fcf905b8c6c14-04/s100x200/9af3965379f3e43b7f5dec5201df1b9c533e0489.jpg"
+<img width="150" src="https://file.garden/aN6QaGdkhgyDAzS7/redstampdystopia.jpg"
  </P>
-<img width="150" src="https://64.media.tumblr.com/49d715607fa2eda6d1d2938b9a7e1fdd/4e0d1ce909e0596c-f2/s100x200/927df52e7ebd661cca88a9c41d92ddf18a7cc448.gifv"
+<img width="150" src="https://file.garden/aN6QaGdkhgyDAzS7/stampred.gifv"
  </P>
 
 $${\color{#EB0000}ᥲᥣᥣㅤ𝗍һіsㅤ𝗍іmᥱㅤI'᥎ᥱㅤᑲᥱᥱᥒㅤᥕᥲі𝗍іᥒg,ㅤOһㅤIㅤᥴᥲᥒᥒ᥆𝗍ㅤgrіᥱ᥎ᥱㅤᥲᥒᥡm᥆rᥱ!}$$ 
