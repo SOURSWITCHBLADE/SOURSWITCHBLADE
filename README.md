@@ -25,3 +25,8 @@ $${\color{#EB0000}tһᥱㅤһᥙr𝗍ㅤіᥒsіძᥱㅤіsㅤ𝖿ᥲძіᥒg,
 
 $${\color{#EB0000}ᥲᥣᥣㅤ𝗍һіsㅤ𝗍іmᥱㅤI'᥎ᥱㅤᑲᥱᥱᥒㅤᥕᥲі𝗍іᥒg,ㅤOһㅤIㅤᥴᥲᥒᥒ᥆𝗍ㅤgrіᥱ᥎ᥱㅤᥲᥒᥡm᥆rᥱ!}$$ 
 
+
+<p align="center">
+ <img src="https://komarev.com/ghpvc/?username=SOURSWITCHBLADE&color=EB0000&label=⚠&style=plastic"
+   </P>
+
